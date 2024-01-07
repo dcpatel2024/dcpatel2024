@@ -13,4 +13,6 @@ I am a firm believer of constant learning to enhance the results and betterment 
 Feel free to buzz me up with reccomendations or discussing new ideas.
 
 Thank you for you time. Looking forward to get in touch!
+https://www.linkedin.com/in/dhwanicpatel/
+
 
